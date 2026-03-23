@@ -1,6 +1,6 @@
 ## Hey hello you all :B
 
-<div class="water"><img height="150%" src="https://adriansblinkiecollection.neocities.org/dividers/ocean.gif"/>
+<div class="water"><img height="1000"><img width="1000" src="https://adriansblinkiecollection.neocities.org/dividers/ocean.gif"/>
 </div>
 
 <div class="karkat"><img height="380px" src="https://media.tenor.com/0CxDcUIjV3EAAAAi/karkat-homestuck.gif"/>
