@@ -1,4 +1,4 @@
-## Hey hello you all :B
+
 
 <div class="water"><img height="1000"><img width="1300" src="https://adriansblinkiecollection.neocities.org/dividers/ocean.gif"/>
 </div>
