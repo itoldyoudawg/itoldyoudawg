@@ -5,13 +5,10 @@
 
  <p align="center">⠀⠀ ⠀⠀</p>
  <p align="center">⠀⠀ ⠀⠀</p>
-<p align="center">
-  <img src="https://files.catbox.moe/wsnvzo.gif"/>
-</p>
-
+<p align="center"><img src="https://files.catbox.moe/wsnvzo.gif"/></p>
 <p align="center">⠀⠀ ⠀⠀</p>
+<p align="center"> ⌡4 м⠀⠀ ⠀.ᐟ.ᐟ⠀  ⠀⠀ᴴᴱ/ᴴᴵᴹ    ⠀</p>  
 
-<p align="center">I'm a bum so I'm gonna update this later, but basically i have a hugeeee variety of interests although im very big on homestuck right about now </p>
   
 <p align="center">I draw and all that awesome stuff and I really love John Egbert. I'm friendly! Don't be afraid to talk to me please I dislike interacting first it makes me nervous, so I most likely will just sit and admire your gorgeous ponies ok. forgive me, hehajeashfj alright that's about it for now i guess!</p> 
 
