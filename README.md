@@ -12,7 +12,7 @@
 <p align="center"> ɢᴏ ᴄʜᴇᴄᴋ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ !⠀</p>  
 
   
-<p align="center">I draw and all that awesome stuff and I really love John Egbert. I'm friendly! Don't be afraid to talk to me please I dislike interacting first it makes me nervous, so I most likely will just sit and admire your gorgeous ponies ok. forgive me, hehajeashfj alright that's about it for now i guess!</p> 
+<p align="center">I draw and all that awesome stuff and I really love John Egbert. I'm friendly! Don't be afraid to talk to me please I dislike interacting first it makes me nervous, although theres times i get courage to say something first too but not all the time. Either way, I'm happy to talk to anyone after someone's made the move! I love talking ok. otherwise I most likely will just sit and admire your gorgeous ponies ok. forgive me, hehajeashfj alright that's about it for now i guess!</p> 
 <p align="center">⠀⠀ ⠀⠀</p>
 <p align="center"><img src="https://64.media.tumblr.com/5d196e8ebed9fde364c0f9c9636d1f20/07ffab718642b4bf-75/s100x200/e2272740dc4423c31c7539a5eeee3ab461a34a34.gifv"/></p>
 
