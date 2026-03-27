@@ -17,6 +17,6 @@
 <p align="center"><img src="https://64.media.tumblr.com/5d196e8ebed9fde364c0f9c9636d1f20/07ffab718642b4bf-75/s100x200/e2272740dc4423c31c7539a5eeee3ab461a34a34.gifv"/></p>
 
 
-<div class="karkat"><img width="400" src="https://media.tenor.com/0CxDcUIjV3EAAAAi/karkat-homestuck.gif"/> <img height="380px" src="https://media.tenor.com/NPHdluIGjN4AAAAi/johnegbert-egbert.gif"/>
+<div class="karkat"><img width="400" src="https://media.tenor.com/0CxDcUIjV3EAAAAi/karkat-homestuck.gif"/> <img height="400px" src="https://media.tenor.com/NPHdluIGjN4AAAAi/johnegbert-egbert.gif"/>
 </div>
 <!-- pic end -->
