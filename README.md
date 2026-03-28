@@ -16,8 +16,18 @@
 <p align="center">⠀DNI ᴘʀᴏsʜɪᴘᴘᴇʀs, ᴅᴀʀᴋsʜɪᴘᴘᴇʀs, ʙᴀsɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ (ʜᴏᴍᴏᴘʜᴏʙɪᴀ, ᴛʀᴀɴsᴘʜᴏʙɪᴀ, ᴇᴛᴄ.), ʀᴇᴀʟʟʏ ʀᴇᴀʟʟʏ ᴍᴇᴀɴ ᴘᴇᴏᴘʟᴇ, ʟɪᴋᴇ sᴇʀɪᴏᴜsʟʏ ᴍᴇᴀɴ ᴀʟʟ ᴛʜᴇ ᴛɪᴍᴇ ᴏᴋ ᴅᴏɴᴛ ᴅᴏ ᴛʜᴀᴛ⠀ ⠀⠀</p>
 <p align="center">⠀⠀ ⠀⠀</p>
 <p align="center"><img src="https://64.media.tumblr.com/5d196e8ebed9fde364c0f9c9636d1f20/07ffab718642b4bf-75/s100x200/e2272740dc4423c31c7539a5eeee3ab461a34a34.gifv"/></p>
+<p align="center">⠀⠀ ⠀⠀</p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1qkub6toks2neqrx5k6jhz5yz&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color_cover=true&bar_color=229c1c&mode=dark">
+  </a>
+</p>
 
 
 <div class="karkat"><img width="400" src="https://media.tenor.com/0CxDcUIjV3EAAAAi/karkat-homestuck.gif"/> <img height="400px" src="https://media.tenor.com/NPHdluIGjN4AAAAi/johnegbert-egbert.gif"/>
 </div>
+<p align="center">⠀⠀ ⠀⠀</p>
+<p align="center">⠀⠀ ⠀⠀</p>
+
 <!-- pic end -->
